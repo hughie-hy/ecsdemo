@@ -1,1 +1,1 @@
-i love china
+dream
